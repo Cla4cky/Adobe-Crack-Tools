@@ -1,1 +1,0 @@
-# Adobe-Crack-Tools11
